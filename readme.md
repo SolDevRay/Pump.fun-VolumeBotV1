@@ -28,4 +28,4 @@
 > One cycle of volume generator will cost you less than 3$ in SOL fees (PF fees 1% are not included)🚀🎉
 
 Make your token launching experience smoother, faster, and more enjoyable with Volume Generator! 
-![alt text](https://imgur.com/a/JTjuEe1)
+![alt text](https://i.imgur.com/tpj8k1Q.png)
